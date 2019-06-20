@@ -8,7 +8,7 @@ Furthermore, 4th in the daily rankings — I'm so surprised with that number I c
 
 I think of this as a present that everyone gave me without a doubt. Honestly, honestly, thank you.
 
-Until now, starting my solo career, I wasn't sure of myself and I was always feeling uneasy. However from today, I have this "Principle"; I thought I'd try living a bit more proudly.
+Until now, starting my solo career, I wasn't sure of myself and I was always feeling uneasy. However from today, I have this "Principal"; I thought I'd try living a bit more proudly.
 
 These kind of things that I thought of, is thanks to you guys.
 You're always giving me so much. Truly.
