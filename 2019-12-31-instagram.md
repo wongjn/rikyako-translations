@@ -22,7 +22,7 @@ Therefore, I had a lot of time since June to look at Aqours with myself. I think
 
 My solo career was kicked up a gear: 1st Ep ‘Pricipal’ _[sic]_ and 1st Single ‘for…’ were released; performing at Anisama; I have to face things that I have ran from until now.
 
-Through various things, I felt my weaknesses and helplessness more than ever. However more than that, with the help lots of people, I fully realized my support.
+Through various things, I felt my weaknesses and helplessness more than ever. However more than that, with the help from lots of people, I fully realized my support.
 
 With all things that happened, my values and way of thinking changed and again, I was reminded of my gratitude for Aqours' existance.
 
