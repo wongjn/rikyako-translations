@@ -67,4 +67,4 @@ Let's meet in 2020!!
 ![](https://scontent-lhr8-1.cdninstagram.com/v/t51.2885-15/sh0.08/e35/p640x640/74363470_496861617609764_3157030014377618392_n.jpg?_nc_ht=scontent-lhr8-1.cdninstagram.com&_nc_cat=1&_nc_ohc=Ay8eOulfelwAX-qzFOS&oh=82211d2eeec35a3de6abe9792e8db3a9&oe=5EB31747)
 ![](https://scontent-lht6-1.cdninstagram.com/v/t51.2885-15/sh0.08/e35/p640x640/79839462_793880254371404_6529888055510403656_n.jpg?_nc_ht=scontent-lht6-1.cdninstagram.com&_nc_cat=108&_nc_ohc=ksdWb18NsW0AX9V8DVE&oh=05eac4501d586c1a5e031359199c9478&oe=5EA0F1D0)
 
-Source: [aida_rikako_ on Instagram](https://instagram.com/p/B6vGDxEDmt/)
+Source: [aida_rikako_ on Instagram](https://instagram.com/p/B6vGDxEDmt-/)
