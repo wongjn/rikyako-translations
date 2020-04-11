@@ -9,3 +9,4 @@
 * [2019-12-01 Instagram: Fan Meeting vol.1](/translations/2019-12-01-instagram)
 * [2019-12-08 Instagram: Val×Love End-of-year Party](/translations/2019-12-08-instagram)
 * [2019-12-31 Instagram: 2019 → 2020](/translations/2019-12-31-instagram)
+* [2020-04-11 Instagram: Today Was Supposed to be The 1st Live Tour](/translations/2020-04-11-instagram)
