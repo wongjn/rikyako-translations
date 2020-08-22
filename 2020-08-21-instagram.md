@@ -42,6 +42,8 @@ Believe that someday, we will be able to hold a dome tour with an audience.
 
 Because up to now, with everyone, we've overcome lots of various challenges together! From hereon, I will properly try my best to look forward positively!!
 
+<p>&nbsp;</p>
+
 Thank you for reading until the end 😊
 
 See you later!
