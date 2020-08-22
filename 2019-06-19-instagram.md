@@ -1,4 +1,4 @@
-# Instagram 19th June 2019
+# Principal EP release
 
 Again, thank you for all the celebrations of today's 1st EP 'Principal' release!
 

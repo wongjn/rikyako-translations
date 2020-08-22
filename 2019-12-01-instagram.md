@@ -1,4 +1,4 @@
-# Fan Meeting vol.1 (Instagram 1st December 2019)
+# Fan Meeting vol.1
 
 Rikako Aida OFFICIAL FAN MEETING ‘with Us’ vol.1 🎉
 

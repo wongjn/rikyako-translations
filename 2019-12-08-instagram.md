@@ -1,4 +1,4 @@
-# Val×Love End-of-year Party (Instagram 8th December 2019)
+# Val×Love End-of-year Party
 
 Yesterday, I attended the ‘Val×Love Big End-of-year Party’!
 

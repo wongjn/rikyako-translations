@@ -1,4 +1,4 @@
-# 1st photo book (Instagram 11th November 2019)
+# 1st photo book announcement
 
 Again, on 25th December, the 1st photo book will be released!
 

@@ -1,4 +1,4 @@
-# Anime NYC (Instagram 19th November 2019)
+# Anime NYC
 
 Came back safely yesterday ✈️
 

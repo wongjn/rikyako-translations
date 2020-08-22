@@ -1,4 +1,4 @@
-# Anisama 2019 (Instagram 16th June 2019)
+# Anisama 2019
 
 Animelo Summer Live 2019 "STORY"
 
