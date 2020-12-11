@@ -12,3 +12,4 @@
 * [2020-04-11 Instagram: Today Was Supposed to be The 1st Live Tour](2020-04-11-instagram)
 * [2020-06-30 Instagram: Aqours' 5th Anniversary](2020-06-30-instagram)
 * [2020-08-21 Instagram: Aqours Dome Tour Cancellation](2020-08-21-instagram)
+* [2020-12-11 Instagram: Curtain raise Live Tour](2020-12-11-instagram)
